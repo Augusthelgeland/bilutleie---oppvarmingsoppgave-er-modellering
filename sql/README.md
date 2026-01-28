@@ -1,1 +1,0 @@
-her ligger sql script
