@@ -1,1 +1,1 @@
-# bilutleie---oppvarmingsoppgave-er-modellering
+https://lucid.app/lucidchart/f26f7b52-cefb-41b0-99d7-53075fbf5402/edit?view_items=-BlrR7~eQSQs%2C-BlrjyOlVuxR%2CK0lrRJlLX8ZU%2C-Blrd8RH2jM-%2CrmmrIYJTv.fW%2CxhqrZpCaqptm%2CComr-H883MH6%2Cclmrri~LDpiq&page=0_0&invitationId=inv_fda31bfd-d5e4-4666-8995-027ee5f4ca5c
